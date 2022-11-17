@@ -1,2 +1,2 @@
-Hi 👋, we're Common Ground and we make nifty electronics!
+Hi 👋, we make nifty electronics!
 
